@@ -50,7 +50,7 @@ Remember, this is a limited-time offer. Click the discount button below to claim
 
 ## PrepScholar Promo Code To Get Up To $480 Off On SAT
 
-Unlock [$480 off](https://www.prepscholar.com/) with this PrepScholar promo with 1-on-1 guidance and boost your SAT score.
+Unlock [$480 off](https://shareasale.com/r.cfm?b=1411236&u=1129260&m=91268&urllink=&afftrack=Google) with this PrepScholar promo with 1-on-1 guidance and boost your SAT score.
 
 [![|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfoMzZQWA3hWRfGK9PyzP9fiRsBC9UipOV3NnzfbwDfUg_nNyZKsYQYGgH1BlPxW4e4pwKFh4z1dYJjrG3H_2FIfRtQujfXnGgpuoy_Kk8KBAJ8RqzKQSWFanGtgbnKQL4wqnZU?key=3mAVyIQkRZBeVH7kvm2dqmjw)](https://shareasale.com/r.cfm?b=1411236&u=1129260&m=91268&urllink=&afftrack=Google)
 
@@ -63,7 +63,7 @@ I recommend going with the PrepScholar Full Tutoring Prep plan with this discoun
 
 ## Get a $450 Coupon On ACT Tutoring
 
-Claim [$450 off](https://www.prepscholar.com/) your 1-on-1 session with an expert to score higher on the ACT course.
+Claim [$450 off](https://shareasale.com/r.cfm?b=1411236&u=1129260&m=91268&urllink=&afftrack=Google) your 1-on-1 session with an expert to score higher on the ACT course.
 
 [![|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXf6Wp25Kn9ilMdnUzX4ZEUSdYky3MTR169vsalzV6C2E-aBhoPh8yvHL9pHXjNcL9jiLeifhXxTNSLPmNH9bgJ7XXfAe-PFxjI6m01-pS9_lwgqS5-G3o-_ES20fKsaM8eTz3nLdg?key=3mAVyIQkRZBeVH7kvm2dqmjw)](https://shareasale.com/r.cfm?b=1411236&u=1129260&m=91268&urllink=&afftrack=Google)
 
@@ -104,7 +104,7 @@ This PrepScholar coupon applies to these courses:
 
 Follow these simple steps to claim your PrepScholar coupon code.
 
-Step 1: Visit [PrepScholar official website](https://www.prepscholar.com/) with this discount link.
+Step 1: Visit [PrepScholar official website](https://shareasale.com/r.cfm?b=1411236&u=1129260&m=91268&urllink=&afftrack=Google) with this discount link.
 
 ![|624x273](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcrwKrVifSSasptZEukx9GconGsa5KNsQa92OgKqPlibTwFhWy7RH6kfb4w_zQ_b77s9C63uHBrUWlu5l2gGeiEySB4h43HKLXcbyGqN9ruavmZz90pDneVRTKYzyHD0fwFoElulw?key=3mAVyIQkRZBeVH7kvm2dqmjw)
 
