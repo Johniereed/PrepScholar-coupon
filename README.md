@@ -81,7 +81,7 @@ Yes, you heard it right: get a [7-day free trial](https://shareasale.com/r.cfm?b
 
 It will give you enough of an idea of whether the platform meets your learning goals or not.
 
-## Prep Expert Coupon Code | Get $300 Off
+## Prep Scholar Coupon Code | Get $300 Off
 
 Grab [$300 off](https://shareasale.com/r.cfm?b=1411236&u=1129260&m=91268&urllink=&afftrack=Google) on PrepScholar expert-led courses with this prep expert coupon code.
 
